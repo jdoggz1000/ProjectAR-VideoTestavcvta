@@ -1,1 +1,0 @@
-# ProjectAR-VideoTestavcvta
